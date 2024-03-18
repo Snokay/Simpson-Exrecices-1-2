@@ -1,1 +1,1 @@
-Reproduction of a simpson exo-1 site is adapter for pc | exo-2 is suitable for mobile and PC | Exercise for Elan Formation
+Reproduction of a simpson website exercice 1 is adapt for PC | exercice 2 is adapt for mobile and PC | Exercice for Elan Formation
